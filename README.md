@@ -1,2 +1,5 @@
 # yemistorms.github.io
-Portfolio Website
+Coming Soon!
+
+In the meantime contact me @
+horperyemi99@gmail.com
